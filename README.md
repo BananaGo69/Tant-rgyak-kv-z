@@ -1,1 +1,1 @@
-# Tant-rgyak-kv-z
+# Tantárgyak-kvíz
